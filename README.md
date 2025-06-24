@@ -14,8 +14,6 @@
 
 ⟡ ᴘʟᴇᴀsᴇ ᴅʀᴀᴡ ᴏɴ ᴍʏ sᴛʀᴀᴡᴘᴀɢᴇ!!
 
-![image](https://github.com/user-attachments/assets/b221ed30-6e62-4559-bbbd-05769fcf69a9) 
-
 ![image](https://github.com/user-attachments/assets/2351668c-fd71-430d-872e-0a90e1f9ef3e) ![image](https://github.com/user-attachments/assets/a9fca6dc-8a63-4608-86d7-87ecb2c3d32b) ![image](https://github.com/user-attachments/assets/293f41ef-b767-4e21-9c44-182b68af7e33)
 
 
