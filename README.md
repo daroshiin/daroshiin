@@ -3,16 +3,11 @@
 
 𐂯 INTRO 𐂯
 
+⟡ HIHI!! I'm Daro, or Daroshiin, or Kris, or if I'm cosplaying, that person!
 
-⟡ ʜɪʜɪ!! ɪ'ᴍ ᴅᴀʀᴏ ( ᴏʀ ᴊᴇssᴇ, ᴍᴀx, ʙʀᴀᴅʟᴇʏ, ᴏʀ ᴀɴʏᴏɴᴇ ɪ'ᴍ ᴘʀᴇsᴇɴᴛɪɴɢ ᴀs )
+⟡ Please read this!! and feel free to draw on my strawpage at the bottom!
 
-⟡ ᴄ+ʜ ɪꜱ ᴡᴇʟᴄᴏᴍᴇᴅ! ɪꜰ ɪ'ᴍ ɴᴇᴇᴅᴇᴅ ꜰᴏʀ ᴀɴʏᴛʜɪɴɢ, ᴀɴᴅ ɪ'ᴍ ɴᴏᴛ ᴏɴ ᴛᴀʙ, ᴘʟᴇᴀꜱᴇ ᴡʜɪꜱᴘᴇʀ ᴍᴇ!!
-
-⟡ ɪ'ᴍ ᴏᴋᴀʏ ᴡɪᴛʜ ᴍᴇᴇᴛɪɴɢ ɴᴇᴡ ᴘᴇᴏᴘʟᴇ!! ɪ ᴀᴄᴛᴜᴀʟʟʏ ᴡᴇʟᴄᴏᴍᴇ ɪᴛ!
-
-⟡ ᴛᴀᴋᴇɴ
-
-⟡ ᴘʟᴇᴀsᴇ ᴅʀᴀᴡ ᴏɴ ᴍʏ sᴛʀᴀᴡᴘᴀɢᴇ!!
+⟡ I'm okay with meeting others! Just no flirting please, I'm happily married!
 
 ![image](https://github.com/user-attachments/assets/2351668c-fd71-430d-872e-0a90e1f9ef3e) ![image](https://github.com/user-attachments/assets/a9fca6dc-8a63-4608-86d7-87ecb2c3d32b) ![image](https://github.com/user-attachments/assets/293f41ef-b767-4e21-9c44-182b68af7e33)
 
@@ -46,13 +41,15 @@
 ![ce71e6e7](https://github.com/user-attachments/assets/2aa4947e-84e4-4d2a-93bc-acc7b43c821d) ![image](https://github.com/user-attachments/assets/35d925fe-26e6-46c0-a364-98a8d596de5e)
 
 
-⟡ ​🇯​​🇦​​🇲​​🇪​​🇸​ ​🇨​​🇦​​🇲​​🇪​​🇷​​🇴​​🇳​❜​🇸​ ​🇦​​🇻​​🇦​​🇹​​🇦​​🇷​ ⟡
+⟡ ​deltarune/UNDERTALE ⟡
 
-⟡ ​🇩​​🇷​​🇦​​🇼​​🇮​​🇳​​🇬​ ⟡
+⟡ Minecraft (: Story Mode) ⟡
 
-⟡ ​ᴀɴɪᴍᴀᴛɪɴɢ​ ⟡
+⟡ ​Drawing​ ⟡
 
-⟡ ᴊᴜsᴛ ᴛᴏ ɴᴀᴍᴇ ᴀ ғᴇᴡ!! ⟡
+⟡ Animating ⟡
+
+⟡ Just to name a few! ⟡
 
 
 ![cherryblossoms4](https://github.com/user-attachments/assets/714315a7-dbfd-43a2-ac06-34523a0134a1)
@@ -63,15 +60,13 @@
 
  ![fire](https://github.com/user-attachments/assets/35724429-3633-46f9-b116-b28a88ac21dc) ..𐂯 DNI 𐂯.. ![fire](https://github.com/user-attachments/assets/35724429-3633-46f9-b116-b28a88ac21dc)
 
-⟡ ʙᴀsɪᴄ ᴅɴɪ (ʙɪɢᴏᴛʀʏ, ᴘʀᴏsʜɪᴛᴛᴇʀs, ᴘᴇᴅᴏ, ᴇᴄᴛ)
+⟡ Basic DNI! NO PEDOS, BIGOTRY, GENUINE HATE
 
-⟡ sᴀʀᴋ sᴜᴘᴘᴏʀᴛᴇʀs
+⟡ HOMESTUCK FANS (i know too many of you folks that are pedophiles or worse, no offense)
 
-⟡ ʜᴏᴍᴇsᴛᴜᴄᴋ
+⟡ COUNTRY HUMANS (same for homestuck fans)
 
-⟡ ᴄᴏᴜɴᴛʀʏ ʜᴜᴍᴀɴs
-
-⟡ sɴᴏᴡғʟᴀᴋᴇs (ᴛʜᴏsᴇ ᴅᴜᴅᴇs ᴡʜᴏ ᴅᴏɴᴛ ᴋɴᴏᴡ ᴡʜᴀᴛ ᴀ ᴊᴏᴋᴇ ɪs)
+⟡ SNOWFLAKES (please learn to take a joke)
 
 ____________
 
