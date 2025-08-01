@@ -40,10 +40,13 @@
 
 ![ce71e6e7](https://github.com/user-attachments/assets/2aa4947e-84e4-4d2a-93bc-acc7b43c821d) ![image](https://github.com/user-attachments/assets/35d925fe-26e6-46c0-a364-98a8d596de5e)
 
+⟡ Persona 5! ⟡
 
 ⟡ ​deltarune/UNDERTALE ⟡
 
-⟡ Minecraft (: Story Mode) ⟡
+⟡ Elder Scrolls ⟡
+
+⟡ Minecraft (: Story Mode) 
 
 ⟡ ​Drawing​ ⟡
 
