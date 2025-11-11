@@ -1,7 +1,7 @@
 
 ![47be3f7c](https://github.com/user-attachments/assets/97f0ca37-1b41-4dff-9df6-a8d05cbaa053)
 
-![image](https://github.com/user-attachments/assets/981e0412-9f12-4c71-9bd1-62193322697b) 𐂯 INTRO 𐂯 ![image](https://github.com/user-attachments/assets/981e0412-9f12-4c71-9bd1-62193322697b)
+𐂯 INTRO 𐂯 ![image](https://github.com/user-attachments/assets/981e0412-9f12-4c71-9bd1-62193322697b)
 
 ⟡ HIHI!! I'm Daro (dah-row), or Daroshiin (dah-row-shin), or if I'm cosplaying: {Insert Character}!
 
