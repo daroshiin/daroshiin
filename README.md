@@ -3,7 +3,7 @@
 
 ![image](https://github.com/user-attachments/assets/981e0412-9f12-4c71-9bd1-62193322697b) 𐂯 INTRO 𐂯 ![image](https://github.com/user-attachments/assets/981e0412-9f12-4c71-9bd1-62193322697b)
 
-⟡ HIHI!! I'm Daro, or Daroshiin, or if I'm cosplaying: {Insert Character}!
+⟡ HIHI!! I'm Daro (dah-row), or Daroshiin (dah-row-shin), or if I'm cosplaying: {Insert Character}!
 
 ⟡ I'm okay with meeting others! Just no flirting please, I'm happily married!
 
