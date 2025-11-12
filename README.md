@@ -57,8 +57,6 @@
 
 ⟡ Minecraft (ARGs, Story Mode) ⟡
 
-⟡ Hazbin/Helluva (shows only) ⟡
-
 ⟡ ​deltarune/UNDERTALE ⟡
 
 ⟡ ​Drawing​ ⟡
