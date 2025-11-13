@@ -3,9 +3,9 @@
 
 
 
-   - to strawpage : (![link](https://daroshiin.straw.page/))
+   - to [strawpage](https://daroshiin.straw.page/)
 
-   - to tumblr: (![link](https://www.tumblr.com/daroshiin))
+   - to [tumblr](https://www.tumblr.com/daroshiin)
 
    
 
