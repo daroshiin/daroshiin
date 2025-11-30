@@ -1,7 +1,7 @@
 
-<img width="754" height="632" alt="image" src="https://github.com/user-attachments/assets/ab2cef56-2061-4a42-a07e-4638ee41356d" />
+<img width="653" height="554" alt="image" src="https://github.com/user-attachments/assets/02a5d11c-e0b9-421f-91f8-95995d146b37" />
 
-
+<img width="788" height="372" alt="image" src="https://github.com/user-attachments/assets/3d8b076c-ea45-408d-8191-47edeca919c6" />
 
    - to [strawpage](https://daroshiin.straw.page/)
 
