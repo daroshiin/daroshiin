@@ -5,8 +5,7 @@
 
    - to [tumblr](https://www.tumblr.com/daroshiin)
 
-<img width="788" height="372" alt="image" src="https://github.com/user-attachments/assets/3d8b076c-ea45-408d-8191-47edeca919c6" />
-
+<img width="776" height="359" alt="image" src="https://github.com/user-attachments/assets/b2abf894-c462-4d26-a560-fde4789d75d7" />
 
    
 
