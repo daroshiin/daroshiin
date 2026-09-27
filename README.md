@@ -1,5 +1,5 @@
 
-<img width="737" height="485" alt="image" src="https://github.com/user-attachments/assets/796aef9f-0805-40c9-bbee-eecd63b8dfed" />
+<img width="769" height="484" alt="image" src="https://github.com/user-attachments/assets/fd3c64ba-2b19-4888-8bf6-58b6066e957d" />
 
    - to [strawpage](https://daroshiin.straw.page/)
 
